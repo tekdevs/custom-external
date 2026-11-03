@@ -1,1 +1,1 @@
-[# custom-external](https://youtu.be/fZVLnMxJzBg)
+https://youtu.be/fZVLnMxJzBg
